@@ -45,6 +45,8 @@ Mladík vyskočil tak prudce, že málem sjel po strmé střeše, musel jsem jej
 
 Tentokrát pták začal skřehotat správný text, odříkával jej však se zjevnou nechutí, a když se na něj jeho pán nedíval, dělal zhnusené obličeje:
 
+  
+
 _„Navečer dorazil na vrchol kopce k otvoru sluje,  
 jež vraty ze zlata zavřena byla; vzácný kov svítil  
 v paprscích slunce, jež k vzdáleným černým pralesům kleslo,  
@@ -60,6 +62,8 @@ ve kterém zbožné dívky lechtaly lesního boha.
 Údolem chladná se vinula řeka, s ostrovy, na nichž  
 nevrlí démoni sídlí, jezdící na hřbetech brouků,  
 kteří jsou větší než člověk a zpívají oplzlé písně…“_
+
+  
 
 „Tak už dost, Felixi,“ přerušil ptáčník svého chovance. „Tahle pasáž podle mínění exegetů obsahuje popis pražské kotliny v době, kdy sem přišel zakladatel města, hlavní hrdina eposu. Byl královským synem a sedmým Dargúzovým vtělením. Na svatbě svých dvanácti sester se sousedním králem z roztržitosti zlomil lžičku a král to pokládal za nezdvořilou narážku na příhodu, která se stala jednomu z jeho předků: ten bojoval celý den ve slunečním žáru na vyprahlé pláni se zlou rostlinou, a promeškal tak okamžik, kdy se na kamenné zdi jeho paláce mravenci seskupili do slov věty, ve které se mluvilo o spánku na chrámovém schodišti rozžhaveném sluncem a o monotónním šumění fontán na širokých prázdných náměstích. Král se urazil a na oplátku se začal posmívat tomu, že v zemi našeho hrdiny jsou nejvyšší autoritou ve věcech náboženství zelení ještěři (což byla i nebyla pravda, ale to teď nechme stranou). Podnapilý héros popadl těžký zlatý pohár, na jehož bocích byl reliéf zobrazující bitvu galér na jezeře, a roztříštil jím královi hlavu. Když se ptal ve věštírně, jak by se mohl očistit z vraždy, řekla mu kněžka, že musí hned odejít z království a založit město uprostřed hlubokého pralesa, v místě, kde uvidí domorodce, kteří mluví neznámou řečí a uctívají sochu okřídleného psa, stojící na mýtině. Ale nemohu vám vyprávět obsah celého díla.“
 
