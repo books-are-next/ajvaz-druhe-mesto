@@ -3,8 +3,6 @@ title: 15 Prostěradla
 contentType: prose
 ---
 
-  
-
 Ještě dlouho jsem seděl za oknem a díval se na prázdné náměstíčko. Začaly se mi klížit oči, z polospánku mě vytrhl hřmot blížícího se automobilu: otevřel jsem oči a uviděl jsem, jak od Clam-Gallasova paláce přijíždí popelářský vůz; byl celý skleněný, průhlednými stěnami bylo vidět hromadu třpytících se zlatých šperků, po kterých se plazili zelení hadi, uprostřed šperků se tyčila rozsvícená pokojová lampa na kovové noze a pod ní stálo bíle povlečené lůžko, na němž se objímali nazí milenci. Vůz se zastavil před hospodou U Modré štiky, popeláři seskočili se stupátka na jeho zadním konci a přivalili popelnice, které stály na chodníku. Když sklápěcí mechanismus převrátil popelnice do vnitřku vozu, vysypaly se z nich další šperky a další vlnící se zelení hadi, šperky se kutálely kolem lůžka, hadi se ovinovali kolem stojanu lampy. Když milenci uslyšeli chřestění zlata, přitiskli se k sobě ještě pevněji a zrychlili své pohyby. Znovu jsem zavřel oči, slyšel jsem, jak popelářský vůz odjíždí, jeho zvuk slábl, až se ztratil za zdmi.
 
 Ozvalo se vzdálené vrčení, které neustále sílilo. Za chvíli se nad náměstíčkem objevila bílá helikoptéra, na jejím spodku byla namalovaná hlava řvoucího tygra. Snesla se níž, kymácivě se zastavila nad sněhem ve výšce stojícího člověka. V jejím okně se rozsvítil silný reflektor, kužel ostrého světla klouzal po fasádách domů, osvětlil vnitřek prázdné hospody, vyšplhal se nahoru do podkroví a sjel zase dolů, pronikal do tmavých pokojů. Nečekal jsem, až zlověstné světlo vnikne do vinárny, zmizel jsem zadním východem do vnitřku domu.
