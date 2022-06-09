@@ -23,6 +23,8 @@ Byl bych rád pronikl dál do tajemného prostoru, pokoušel jsem se vylézt na 
 
 Zůstal jsem ležet na místě, kam jsem upadl, a trochu se prospal. Byl jsem z divoké honičky tak vyčerpaný, že už jsem neměl sílu k tomu, abych se vrátil k horám a hledal průsmyk, kterým bych pronikl do hloubky jiného prostoru, a tak jsem se po postelové pláni vrátil do tmavého bytu. Oblékl jsem se a chtěl odejít, když jsem uslyšel rázné ťukání na okno. Za sklem stál na římse recitační pták Felix. Měl jsem radost, že se s ním zase setkávám, hned jsem otevřel okno, ale Felix zůstal stát venku, uklonil se a začal rychle recitovat báseň, kterou se mi snažil přednést už při našem prvním setkání na střeše Chrámu svatého Víta. Deklamoval verše s neúměrným pathosem a zdůrazňoval místa, která pokládal za obzvláště významná, máváním křídel a kýváním celého těla, takže jsem měl strach, aby nespadl s římsy.
 
+  
+
 _„Okraje říší, kam nedosáhne moc zákonů středu,  
 kde barbar z plání s šikmýma očima  
 v hospodě u jednoho stolu s celníkem mlčky sedí,  
@@ -45,7 +47,11 @@ které je pro nás méně viditelné než zlaté síně v nitru pohoří.
 Okraje, odkud zní táhlý zpěv oblud,  
 který zaslechneme jen v tichu noci…“_
 
+  
+
 Při těchto slovech Felix přehnal máchání křídly, kterým doprovázel přednes, a opravdu spadl s římsy. Z hloubky se ozvalo zděšené zavřeštění, ale naštěstí pták stačil pád zvládnout; za chvíli zase vyletěl na římsu a pokračoval.
+
+  
 
 _„Okraje, odkud zní táhlý zpěv oblud,  
 který zaslechneme jen v tichu noci,  
@@ -67,5 +73,7 @@ vytahují hostům z tašek svačiny a jedí je,
 takže je zcela pochopitelné, že hosté začínají mít určité obavy  
 i ohledně obsahu sarkofágů, které zanechali v šatně,  
 a skutečně: když je od šatnářky žádají nazpět…“_
+
+  
 
 Tichým skokem vyskočila na parapet okna kočka, Felix opět zavřeštěl a rychle uletěl. Čekal jsem, jestli se nevrátí a neřekne mi ještě něco o okrajích nebo o tom, co se stalo se sarkofágy v šatně, ale už se neobjevil, a tak jsem vyšel z bytu a sestoupil po tmavém schodišti do přízemní haly domu. Lunetovým výřezem nad domovními dveřmi byl vidět padající sníh ve světle pouliční lucerny.
