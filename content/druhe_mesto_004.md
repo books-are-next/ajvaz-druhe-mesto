@@ -3,6 +3,8 @@ title: ''
 contentType: prose
 ---
 
+<section>
+
 Znění tohoto textu vychází z díla [Druhé město](https://search.mlp.cz/cz/titul/druhe-mesto/2485712/#book-content) tak, jak bylo vydáno nakladatelstvím Petrov v Brně v roce 2005. Pro potřeby vydání Městské knihovny v Praze byl text redakčně zpracován.
 
 **§**
@@ -15,6 +17,10 @@ Vydání (obálka, upoutávka, citační stránka a grafická úprava), jehož a
 
 Verze 1.0 z 30. 4. 2020.
 
-  
+</section>
+
+<section>
 
 ![image002.jpg](./resources/image002_fmt.png)
+
+</section>
